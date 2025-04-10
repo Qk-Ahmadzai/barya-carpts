@@ -79,7 +79,7 @@ This project is licensed under the MIT License.
 
 ## Contact
 
-For more information, please contact [Your Name] at [your-email@example.com].
+For more information, please contact QkAhmadzai at QkAhmadzai2016@gmail.com.
 
 ## Additional Resources
 
